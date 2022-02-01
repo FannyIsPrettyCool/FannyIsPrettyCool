@@ -6,6 +6,7 @@
 - 🌱 I’m currently learning japanese
 - 🥅 2022 Goals: Become a japanese bilingual and a streamer
 - 🌈 I'm a MtF transgender my pronouns are (she/her)
+- ![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=ffffff)
 
 ### Connect with me:
 
