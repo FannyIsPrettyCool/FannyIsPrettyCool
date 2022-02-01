@@ -15,9 +15,13 @@
 
 <br />
 
+---
+
 ### Hakos 💖
 
 ![Image](https://cdn.discordapp.com/attachments/593051252309622804/938091762117906503/g518sjt5xyj71.gif)
+
+---
 
 ### Languages and Tools:
 
