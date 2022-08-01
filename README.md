@@ -1,4 +1,4 @@
-### Hi there, I'm Fanny - aka [Fabulous] 👋 
+### Hi there, I'm Fabulous 👋 
 
 ## Student at epitech (Tek1)
 
