@@ -2,9 +2,10 @@
 
 ## Student at epitech (Tek1)
 
+- 🌈 Trans MtF (She/Her) 
 - 🔭 I’m interested in japanese culture and tech stuff
-- 🌱 I’m currently learning japanese
-- 🥅 2022 Goals: Become a japanese bilingual and a streamer
+- 🌱 I’m currently working on many roblox projects
+- 🥅 2022 Goals: Finish at least one of my roblox games 
 - ![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=000000)
 
 ### Connect with me:
