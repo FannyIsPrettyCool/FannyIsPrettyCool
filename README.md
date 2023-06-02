@@ -5,7 +5,7 @@
 - 🌈 Trans MtF (She/Her) 
 - 🔭 I’m interested in japanese culture and tech stuff
 - 🌱 I’m currently working on many roblox projects
-- 🥅 2022 Goals: Finish at least one of my roblox games 
+- 🥅 2023 Goals: Valk babyyyy
 - ![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=000000)
 
 ### Connect with me:
