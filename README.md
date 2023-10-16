@@ -1,6 +1,6 @@
 ### Hi there, I'm Fabulous 👋 
 
-## Student at epitech (Tek2)
+## Student at epitech (Tek3)
 
 - 🌈 Trans MtF (She/Her) 
 - 🔭 I’m interested in japanese culture and tech stuff
