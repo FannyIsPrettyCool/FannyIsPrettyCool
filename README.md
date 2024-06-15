@@ -14,7 +14,7 @@
 
 ### Choo 💖
 
-![Image](https://tenor.com/view/ocha-pmmm-madoka-kaname-homura-akemi-madohomu-gif-23105013)
+![Image](https://media1.tenor.com/m/bqhLJlq-P40AAAAC/ocha-pmmm.gif)
 
 ---
 
