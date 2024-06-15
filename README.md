@@ -3,9 +3,8 @@
 ## Student at epitech (Tek3)
 
 - 🌈 Trans MtF (She/Her) 
-- 🔭 I’m interested in japanese culture and tech stuff
-- 🌱 I’m currently working on many roblox projects
-- 🥅 2023 Goals: Valk babyyyy
+- 🔭 VRChat degen
+- 🌱 I’m currently working on Pulsar
 - ![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=000000)
 
 <br />
