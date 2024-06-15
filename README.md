@@ -12,9 +12,9 @@
 
 ---
 
-### Hakos 💖
+### Choo 💖
 
-![Image](https://cdn.discordapp.com/attachments/593051252309622804/938091762117906503/g518sjt5xyj71.gif)
+![Image](https://tenor.com/view/ocha-pmmm-madoka-kaname-homura-akemi-madohomu-gif-23105013)
 
 ---
 
