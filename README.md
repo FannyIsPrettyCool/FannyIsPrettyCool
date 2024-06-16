@@ -8,8 +8,9 @@
 - 🌱 I’m currently working on Pulsar:
 
     ☄️ Pulsar is a Game engine and editor written in Rustlang, including it's own programing language!
+
   
-- ![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=000000)
+![jkh](https://komarev.com/ghpvc/?username=FannyIsPrettyCool&color=000000)
 
 <br />
 
