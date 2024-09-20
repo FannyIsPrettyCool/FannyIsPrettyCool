@@ -1,9 +1,9 @@
 ### Hi there, I'm Fanny! 👋 
 
-## Student at epitech (Tek3)
+## Student at epitech (Tek4)🇸🇪
 
 - 🌈 Weed smoking and code writing is my thing! 
-- 🖥️ Crystal Linux + Hyprland & Win11
+- 🖥️ EndeavourOS + Hyprland & Win11
 - 🔭 VRChat degen
 - 🌱 I’m currently working on Pulsar:
 
