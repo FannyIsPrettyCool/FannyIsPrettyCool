@@ -2,7 +2,7 @@
 
 ## We like fortnite we like fortnite
 
-- 🌈 Weed smoking and code writing is my thing! 
+- 🌈 Video gaming and code writing is my thing! 
 - 🖥️ EndeavourOS + Hyprland & Win11
 - 🔭 VRChat degen
 - 🌱 I’m currently working on c0met:
